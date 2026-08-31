@@ -6,7 +6,8 @@ ADHD + OCD + Social anxiety,
 Trying to make friends TwT
 
 INTERSTS!!!
-Marvel, Avengers, One Piece, plus more :P
+Marvel,
+Avengers, One Piece, plus more :P
 
 KINs
 Tom (Eddsworld)
