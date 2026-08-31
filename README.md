@@ -1,23 +1,22 @@
 BIO
 My name is Angel!!
 I'm 20 and taken!
-She/her or in name
-Bisexual and Genderfluid
-SFW age regressor <3
-ADHD + OCD + Social anxiety
+Bisexual and Genderfluid, SFW age regressor,
+ADHD + OCD + Social anxiety,
 Trying to make friends TwT
-I'm super cool trust :3
 
-INTERSTS
-Marvel
-Avengers
-One Piece
+INTERSTS!!!
+Marvel, Avengers, One Piece, plus more :P
 
 KINs
 Tom (Eddsworld)
+
 Luffy (One Piece)
+
 Emily (Hazbin Hotel)
+
 Fluttershy (MLP)
+
 Alro (Fluttershy MLP kin)
 
 DNI
