@@ -1,5 +1,4 @@
 	BIO
-
 	My name is Angel!!
 	I'm 20 and taken!
 	Bisexual and Genderfluid
