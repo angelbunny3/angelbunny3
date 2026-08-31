@@ -1,16 +1,30 @@
-## Hi there 👋
+BIO
+My name is Angel!!
+I'm 20 and taken!
+She/her or in name
+Bisexual and Genderfluid
+SFW age regressor <3
+ADHD + OCD + Social anxiety
+Trying to make friends TwT
+I'm super cool trust :3
 
-<!--
-**angelbunny3/angelbunny3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+INTERSTS
+Marvel
+Avengers
+One Piece
 
-Here are some ideas to get you started:
+KINs
+Tom (Eddsworld)
+Luffy (One Piece)
+Emily (Hazbin Hotel)
+Fluttershy (MLP)
+Alro (Fluttershy MLP kin)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+DNI
+Transphobes/Homophobes
+Disrespectful People
+
+OTHER
+I'm okay with flirting + sexual jokes (if you're 18+!!!)
+Just don't be super weird about it :)
+
