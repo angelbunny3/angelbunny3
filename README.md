@@ -12,10 +12,7 @@ KINs
 Tom (Eddsworld)
 
 Luffy (One Piece)
-
-
 Emily (Hazbin Hotel)
-
 Fluttershy (MLP)
 
 Alro (Fluttershy MLP kin)
