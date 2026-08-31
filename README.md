@@ -10,9 +10,7 @@ Marvel, Avengers, One Piece, plus more :P
 
 KINs
 Tom (Eddsworld)
-
 Luffy (One Piece)
-
 Emily (Hazbin Hotel)
 
 Fluttershy (MLP)
