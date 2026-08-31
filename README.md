@@ -1,28 +1,29 @@
-BIO
-My name is Angel!!
-I'm 20 and taken!
-Bisexual and Genderfluid, SFW age regressor,
-ADHD + OCD + Social anxiety,
-Trying to make friends TwT
+	BIO
 
-INTERSTS!!!
-Marvel,
-Avengers, One Piece, plus more :P
+	My name is Angel!!
+	I'm 20 and taken!
+	Bisexual and Genderfluid
+	SFW age regressor :D
+	ADHD + OCD + Social anxiety
+	Trying to make friends TwT
 
-KINs
-Tom (Eddsworld)
+	INTERSTS!!!
+	Marvel
+	Avengers
+	One Piece
+	plus more :P
 
-Luffy (One Piece)
-Emily (Hazbin Hotel)
-Fluttershy (MLP)
+	KINs
+	Tom (Eddsworld)
+	Luffy (One Piece)
+	Emily (Hazbin Hotel)
+	Fluttershy (MLP)
+	Alro (Fluttershy MLP kin)
+	
+	DNI
+	Transphobes/Homophobes
+	Disrespectful People
 
-Alro (Fluttershy MLP kin)
-
-DNI
-Transphobes/Homophobes
-Disrespectful People
-
-OTHER
-I'm okay with flirting + sexual jokes (if you're 18+!!!)
-Just don't be super weird about it :)
-
+	OTHER
+	I'm okay with flirting + sexual jokes (if you're 18+!!!)
+	Just don't be super weird about it :)
